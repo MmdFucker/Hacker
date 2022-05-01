@@ -1,3 +1,3 @@
 # Hacker
 Tamom Avgheb Bar Ohde Khodetone.
-Team [ FKR ]
+Team FKR
